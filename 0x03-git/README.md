@@ -1,1 +1,1 @@
-My mentor is amazing
+My mentor is amazing and wonderful.
